@@ -1,1 +1,1 @@
-![db](https://www.animeunited.com.br/oomtumtu/2022/08/download.jpg](https://sm.ign.com/t/ign_br/tv/o/one-piece-/one-piece-2_1xby.1200.jpg)https://sm.ign.com/t/ign_br/tv/o/one-piece-/one-piece-2_1xby.1200.jpg)
+![db](https://ovicio.com.br/wp-content/uploads/2022/09/20220909-eastblue-onepiece.jpg)
